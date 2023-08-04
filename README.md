@@ -1,4 +1,1 @@
-### AI/ML enthusiast 
-
-
-i cant code
+AI/ML enthusiast

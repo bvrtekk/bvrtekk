@@ -1,1 +1,4 @@
-![:name](https://count.getloli.com/get/@:bvrtekk?theme=gelbooru)
+### AI/ML enthusiast 
+
+
+i cant code
